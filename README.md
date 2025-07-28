@@ -1,4 +1,4 @@
-## Hi there 👋
+![poly](https://pbs.twimg.com/media/Gvsc5cUXUAAWLQ_?format=jpg&name=large)
 
 <!--
 **narusasusaku/narusasusaku** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
