@@ -1,5 +1,7 @@
   <img width="470" height="400" src="https://pbs.twimg.com/media/GR6ar3pXYAAbXqe?format=png&name=medium">
 
+  "Sakura-chan, you really like Sasuke huh? ..I know how much pain you’re in because of Sasuke. I can understand."
+
 <!--
 **narusasusaku/narusasusaku** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
