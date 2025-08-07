@@ -1,5 +1,5 @@
 
-   ![hi](https://64.media.tumblr.com/5a73f91be6eea6d6ccd8aa607186d929/07ce54bd580ea9d7-cc/s2048x3072/e091d52674bb972ff807384183186f710fff78a7.gifv)
+   ![hi](https://i.pinimg.com/1200x/c4/47/85/c44785cefbe3d8cac33ab30a6d4e5794.jpg)
 
 <!--
 **narusasusaku/narusasusaku** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
