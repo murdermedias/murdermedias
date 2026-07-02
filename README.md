@@ -1,4 +1,4 @@
- ![profileviews](https://komarev.com/ghpvc/?username=shinobiyaoi&color=c67188&label=trustuswithurestrogen!&style=plastic)
+ ![profileviews](https://komarev.com/ghpvc/?username=shinobiyaoi&color=c67188&label=trustthefairieswithurestrogen!&style=plastic)
 
  <div align="center">
 <img src="https://i.pinimg.com/564x/8c/d7/af/8cd7af04bb44f6ee8cff8c8412c9f448.jpg" width="400px" align="right"></a>
